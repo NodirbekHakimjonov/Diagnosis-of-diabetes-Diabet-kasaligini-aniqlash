@@ -1,0 +1,1 @@
+# Diagnosis-of-diabetes-Diabet-kasaligini-aniqlash
